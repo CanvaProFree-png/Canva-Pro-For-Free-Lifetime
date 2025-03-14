@@ -1,5 +1,3 @@
-# Canva-Pro-For-Free-Lifetime
-
 # Get Canva Pro for Free with Just One Click 🎨✨ | [Updated 2025]
 
 ## 🚀 Unlock Canva Pro for Free – No Credit Card Required!
